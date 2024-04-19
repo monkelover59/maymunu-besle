@@ -1,1 +1,0 @@
-maymunu besle.
